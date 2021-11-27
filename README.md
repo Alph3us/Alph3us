@@ -6,5 +6,5 @@ I know three languages: English, French, and a conlang called Toki Pona that has
 
 Most of my "content" is going to be personal projects and other things. I try to do a lot of pretty looking themes and the like.<br><br>
 
-Chess.com : https://www.chess.com/member/alpheid (I'm really bad at chess)
+Chess.com : https://www.chess.com/member/alpheid (I'm really bad at chess)<br>
 GI UID : 605780585 (I'm AR56)
